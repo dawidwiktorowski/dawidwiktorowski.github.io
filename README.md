@@ -1,1 +1,0 @@
-# dawidwiktorowski.github.io
